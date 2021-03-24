@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vardhandeepak27
-- 👀 I’m interested in sports
+- 👀 I’m interested in everything
 - 🌱 I’m currently learning engineering
 - 💞️ I’m looking to collaborate on git
 - 📫 How to reach me 7620861988
